@@ -12,6 +12,6 @@ Et remplacer votre esx_status et votre esx_basicneeds par le mien
 
 En cas de Probléme Contactez moi
 
-Mon discord : A.D.E.M.O#1826 Discord
+Mon discord : A.D.E.M.O#1111
 
 N'hesitez pas a rejoindre ce discord pour avoir e l'aide !
